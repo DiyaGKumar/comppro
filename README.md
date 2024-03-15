@@ -1,1 +1,1 @@
-80% proficiency in Medium-Hard problems by April 30th 
+80% proficiency in Medium problems by April 30th 
